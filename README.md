@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...Friends
 - 💬 Ask me about ...Somthing new
 - 📫 How to reach me: ...S558944@nwmissouri.edu
-- 😄 Pronouns: ...Nothing
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...Nothing
 -->
