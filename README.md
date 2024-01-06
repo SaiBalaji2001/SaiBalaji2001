@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... new technology
 - 🤔 I’m looking for help with ...Friends
 - 💬 Ask me about ...Somthing new
-- 📫 How to reach me: ...S558944@nwmissouri.edu
+- 📫 How to reach me: ...gadisaibalaji2001@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...Nothing
 -->
